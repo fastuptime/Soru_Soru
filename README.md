@@ -12,6 +12,13 @@
 
 # [Oynanış Videosu](https://www.youtube.com/watch?v=oQR0HUE33PY&ab_channel=FastUptime)
 
+# Satın Almak İçin!
+
+- İlk Yaptığım Oyunu'da Satın Alabilirsiniz Ne Kadar Test Amaçlı Bir Oyun Olsa da!
+
+- SellMyApp Üzerinden Yayınlandı!
+
+- Link İçin Bize Ulaşabilirsiniz!
 
 ## Adreslerimiz
 
